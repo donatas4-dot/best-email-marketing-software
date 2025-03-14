@@ -1,4 +1,4 @@
-# best-email-marketing-software
+# best email marketing software
 
 Omnisend’s 2025 ecommerce marketing report
 Understand what really works in ecommerce marketing
